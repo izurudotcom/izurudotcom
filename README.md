@@ -1,5 +1,5 @@
 <p align="center">
- 𝗛𝗮𝗶 !!
+Midna's Lament 
 </p>
 <p align="center"> 
   <img src="https://i.pinimg.com/originals/fc/bf/56/fcbf5678666e74a7bb7534b6592e1327.gif"
