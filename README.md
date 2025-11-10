@@ -6,8 +6,9 @@ Midna's Lament
 </p>
 <div align="center">
   I'm coco / link<br>
-  whisper to interact i'm offtabmaxxing ( ˶°ㅁ°) !!<br> 
+  whisper to interact i'm offtabmaxxing<br> 
  C + H OK & encouraged unless i'm with friends <br>
-  read my carrd and leave me smth on my strawpage !!<br>
+  I will not friend you if you're under 15 ok !!<br>
+  SEND ME GIMMICKS SEND ME GIMMICKS <br>
 <img width="84" height="90" alt="image" src="https://github.com/user-attachments/assets/ef7e1684-a719-4458-870a-48e5709f4c25" /> 
 </div>
