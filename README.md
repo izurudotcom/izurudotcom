@@ -12,3 +12,17 @@ Midna's Lament
   SEND ME GIMMICKS SEND ME GIMMICKS <br>
 <img width="84" height="90" alt="image" src="https://github.com/user-attachments/assets/ef7e1684-a719-4458-870a-48e5709f4c25" /> 
 </div>
+
+<div align="center">
+  <b> MY INTERESTS IF YOU CARE <br>
+  Danganronpa <br>
+  The Legend of Zelda <br>
+  One piece <br>
+  Chainsaw Man <br>
+  Attack on Titan <br>
+  Jojo's Bizarre Adventure <br>
+  Neon Genesis Evangelion <br>
+  more but i got lazy <br>
+<img width="500" height="363" alt="image" src="https://github.com/user-attachments/assets/720cf1a8-aecb-4307-87e7-bf19090662bd" />
+
+
