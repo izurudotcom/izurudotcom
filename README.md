@@ -6,7 +6,7 @@ Midna's Lament
 </p>
 <div align="center">
   whisper to interact i'm offtabmaxxing<br> 
-  read rentry if on pc and carrd if on mobile ok <br>
+  read rentry if on pc and carrd if on mobile/pc ok <br>
 <img width="84" height="90" alt="image" src="https://github.com/user-attachments/assets/ef7e1684-a719-4458-870a-48e5709f4c25" /> 
 </div>
 
