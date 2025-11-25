@@ -8,7 +8,7 @@ Midna's Lament
   whisper to interact i'm offtabmaxxing<br> 
   read rentry if on pc and carrd if on mobile/pc ok <br>
   sign strawpage or i die hey im dying right now!!!!!!!! <br>
-  fandoms: danganronpa, aot, nge, one piece, csm and others idk <br>
+  fandoms: danganronpa, aot, tloz, nge, one piece, csm and others idk <br>
 <img width="84" height="90" alt="image" src="https://github.com/user-attachments/assets/ef7e1684-a719-4458-870a-48e5709f4c25" /> 
 </div>
 
