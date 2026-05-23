@@ -6,8 +6,8 @@ Midna's Lament
 </p>
 <div align="center">
   whisper to interact i'm offtabmaxxing<br> 
-  read rentry if on pc and carrd if on mobile/pc ok <br>
-  sign strawpage or i die hey im dying right now!!!!!!!! <br>
+  hi i'm link / coco i mainly use he or she <br>
+  evil blasian <br>
 <img width="84" height="90" alt="image" src="https://github.com/user-attachments/assets/ef7e1684-a719-4458-870a-48e5709f4c25" /> 
 </div>
 
