@@ -7,7 +7,7 @@ Midna's Lament
 <div align="center">
   whisper to interact i'm offtabmaxxing<br> 
   hi i'm link / coco i mainly use he or she <br>
-  evil blasian , c+h ok ! <br>
+  18yrs old blasian , c+h ok ! <br>
 <img width="84" height="90" alt="image" src="https://github.com/user-attachments/assets/ef7e1684-a719-4458-870a-48e5709f4c25" /> 
 </div>
 
