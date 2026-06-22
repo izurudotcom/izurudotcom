@@ -6,7 +6,7 @@ Midna's Lament
 </p>
 <div align="center">
   whisper to interact i'm offtabmaxxing<br> 
-  hi i'm link / coco i mainly use he or she but anything else is fine<br>
+  [strawpage](https://akkala.straw.page)<br>
   18yrs old blasian , c+h ok ! <br>
   be nice to me <br>
 <img width="84" height="90" alt="image" src="https://github.com/user-attachments/assets/ef7e1684-a719-4458-870a-48e5709f4c25" /> 
